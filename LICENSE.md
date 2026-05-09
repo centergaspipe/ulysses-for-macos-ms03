@@ -1,4 +1,4 @@
-
+Ulysses for macOS ultimate Integration: OCR scanning & auto-sync offers the most advanced Ulysses for macOS integration, with OCR scanning and auto-sync. Ideal for professionals.
 
 
 
